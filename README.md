@@ -9,5 +9,3 @@ Pilihan Operasi Matriks :
 
 Contact
 Email : opick.bintang1@gmail.com
-Instagram : @pecandukopisusu
-Twitter : @pecandukopsu
